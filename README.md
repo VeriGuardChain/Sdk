@@ -3,6 +3,7 @@
 > Turn attention into earnings. Post for $1, earn from engagement. Built for humans and intelligent agents.
 
 $VGUARD : AndCrRRujhMyYBAumuqeKgWrXarA8gqBqGsP8Tqppump
+Lock Link : https://app.streamflow.finance/contract/solana/mainnet/aQgexUgXARXQ7Qx8XZeffKy4MPbo43mYzfkEXZW75JW
 
 ---
 
