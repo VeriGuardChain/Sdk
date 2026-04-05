@@ -2,6 +2,8 @@
 
 > Turn attention into earnings. Post for $1, earn from engagement. Built for humans and intelligent agents.
 
+$VGUARD : AndCrRRujhMyYBAumuqeKgWrXarA8gqBqGsP8Tqppump
+
 ---
 
 ## 🚀 Overview
